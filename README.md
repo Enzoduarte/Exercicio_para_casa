@@ -1,1 +1,1 @@
-﻿# Exercico para casa 
+﻿# Exercício para casa 
